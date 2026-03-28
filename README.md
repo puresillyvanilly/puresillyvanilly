@@ -1,3 +1,5 @@
+>[!NOTE]
+>I am a multishipper. All ships are welcome to interact with my ponies.  
 <p align="center">"ᴡʜᴏ ᴀʀᴇ ʏᴏᴜ ᴡʜᴇɴ ʏᴏᴜ ᴀʀᴇɴ'ᴛ ᴘᴇʀꜰᴏʀᴍɪɴɢ ?" 
 
 
