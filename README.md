@@ -1,6 +1,6 @@
 >[!NOTE]
 >I am a multishipper. All ships are welcome to interact with my ponies.  
-<p align="center">"🇦​​🇱​​🇱​ ​🇳​​🇦​​🇹​​🇺​​🇷​​🇪​ ​🇼​​🇭​​🇮​​🇸​​🇵​​🇪​​🇷​​🇸​ ​🇦​ ​🇸​​🇮​​🇱​​🇪​​🇳​​🇹​ ​🇳​​🇴​​🇪​​🇱​ ." 
+<p align="center">"All nature whispers a silent noel​ ." 
  
 . <p align="center">
 ![](https://komarev.com/ghpvc/?username=puresillyvanilly&label=angels&color=ff96c5)
